@@ -8,7 +8,7 @@
 </br>
 
 ## :pushpin: Contact
-- 이메일: leesohee1129@gmail.com
+- e-mail: leesohee1129@gmail.com
 
 </br>
 
